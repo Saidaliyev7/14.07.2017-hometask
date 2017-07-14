@@ -1,0 +1,1 @@
+tapwiriqi etsemde duz olsada cox uzun olduquna gore emin deyilem
